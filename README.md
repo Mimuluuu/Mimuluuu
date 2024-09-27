@@ -37,6 +37,13 @@
 > - **Películas y series:** Lo que más me gusta es ver anime por la trama [(la trama)](https://es.pinterest.com/pin/56717276551554970/)
  y verme algunas peliculas/series de comedia, terror psicológico, ciencia ficción...  
 > - **Animales:** Mi pasatiempo favorito sin duda es pasar tiempo con mi perra Nala.
+>
+> ![Nala](https://github.com/Mimuluuu/foto/blob/main/010d2634-3a62-4ea3-b154-f33e6b5c377e.jpg)
 
-> ![Nala](010d2634-3a62-4ea3-b154-f33e6b5c377e.jpg)
+
+
+## Espero que le haya gustado saber un poco más sobre mí!!!
+
+![HimoutoUmaruGIF](https://github.com/user-attachments/assets/c94e658e-bf45-4cc2-8556-c69c26975ba9)
+
 
