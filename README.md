@@ -36,5 +36,7 @@
 > - **Música:** Me gusta escuchar cualquier género de música, mientras esté buena la rola 😎.  
 > - **Películas y series:** Lo que más me gusta es ver anime por la trama [(la trama)](https://es.pinterest.com/pin/56717276551554970/)
  y verme algunas peliculas/series de comedia, terror psicológico, ciencia ficción...  
-- 
+> - **Animales:** Mi pasatiempo favorito sin duda es pasar tiempo con mi perra Nala.
+
+[Nala]()
 
