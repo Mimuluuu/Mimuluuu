@@ -38,5 +38,5 @@
  y verme algunas peliculas/series de comedia, terror psicológico, ciencia ficción...  
 > - **Animales:** Mi pasatiempo favorito sin duda es pasar tiempo con mi perra Nala.
 
-[Nala]()
+> ![Nala](010d2634-3a62-4ea3-b154-f33e6b5c377e.jpg)
 
