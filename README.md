@@ -6,4 +6,4 @@
 > Soy Cordobesa "_de los pies a la cabeza_"  
 > Con ganas de aprender y saber mucho más
 >
-> ![Mimuluuu](https://github.com/Mimuluuu/foto/blob/main/7887cc26-f079-4f03-8c2f-b588d9595d46.jpg)
+> ![Mimuluuu](https://github.com/Mimuluuu/foto/blob/main/WhatsApp%20Image%202024-09-27%20at%2013.43.54.jpeg)
